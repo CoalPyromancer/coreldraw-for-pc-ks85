@@ -1,4 +1,4 @@
-# 
+# automatic CorelDRAW for PC | CorelDRAW for Windows Panel | path-editing + text-on-path offers the most advanced CorelDRAW for PC | CorelDRAW for Windows panel, with path-editing
 
 
 
